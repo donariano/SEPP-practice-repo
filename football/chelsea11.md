@@ -1,0 +1,11 @@
+Robert Sanchez
+Reece James
+Wesley Fofana
+Trevor Chalobah
+Marc Cucurella
+Enzo Fernandez
+Moises Caicedo
+Cole Palmer
+Estevao Willian
+Joao Pedro
+Alejandro Garnacho
